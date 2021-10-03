@@ -1,0 +1,2 @@
+# pemula2
+Aduh
